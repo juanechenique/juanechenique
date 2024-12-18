@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @juanechenique
-- 👀 I’m interested in children's health and human development
+- 👀 I’m interested in health and policy. 
 - 🌱 I’m currently a Postdoctoral Fellow at NYU Langone
 - 📫 How to reach me Juan.Echenique[at]nyulangone[dot]org
 
